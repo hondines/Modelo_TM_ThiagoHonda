@@ -1,0 +1,1 @@
+# Predi-o-de-varia-o-setorial-baseado-em-an-lise-de-sentimentos-
